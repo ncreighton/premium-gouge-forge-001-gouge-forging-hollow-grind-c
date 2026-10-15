@@ -1,0 +1,2 @@
+# premium-gouge-forge-001-gouge-forging-hollow-grind-c
+Tired of losing your perfect hollow grind parameters and forging sequences in a sea of sticky notes, sketchbooks, and forgotten screenshots? Stop the chaos and start replicating your best gouges with a single, organized workspace.  The Gouge Forging &amp; Hollow Grind Craft Hub is the first Notion template purpose-built for the nuances of gouge forging
